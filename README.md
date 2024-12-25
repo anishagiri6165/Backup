@@ -3,7 +3,7 @@
 Fill in the fields below.
 
 ## Anisha giri
-### Your Group
+### Group C
 ### Your Tutor
 
 Keep your progress up to date below. Put "DONE" after each section, when you have done it.
