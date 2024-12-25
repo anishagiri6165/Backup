@@ -4,7 +4,7 @@ Fill in the fields below.
 
 ## Anisha giri
 ### Group C
-### Your Tutor
+### Resham Bahadur Pun
 
 Keep your progress up to date below. Put "DONE" after each section, when you have done it.
 
